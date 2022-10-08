@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @SalmaFiona1 
-- 👀 I love cats 💕
+👋 Hi, I’m @SalmaFiona1 
 - 🌱 I believe that with the right training, learning and equipment we are capable of doing anything 🪐🛰👩🏽‍💻
 - 💞️ I’m looking to be happy!
+- 👀 I love cats 💕
 - 📫 How to reach me .. I am new here 
 
 <!---
