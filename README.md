@@ -1,5 +1,5 @@
-👋 Hi, I’m @SalmaFiona1 
-- 🌱 I believe that with the right training, learning and equipment we are all capable of doing anything 🪐🛰👩🏽‍💻
+👋 Hi, I’m @SalmaFiona1 from Leeds, West Yorkshire 🇬🇧
+- 🌱 I love to learn 🛰👩🏽‍💻
 - 💞️ I’m looking to be happy and learn more!
 - 👀 I love cats 💕 and music 🎶
 - 📫 How to reach me: salma1fiona@icloud.com
