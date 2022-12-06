@@ -1,5 +1,5 @@
 👋 Hi, I’m @SalmaFiona1 👩🏽‍💻
-
+I am an analytical indvidual , i love to create,work with other people and learn new things. I hope that in 2023 I am able to pursue my career and land mt first job in code. 
 
 
 - 📫 How to reach me: salma1fiona@icloud.com
